@@ -1,0 +1,2 @@
+# Ideas
+future project ideas
